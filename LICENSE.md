@@ -1,4 +1,4 @@
-# 
+# Gratuito PDF-XChange Editor predefinições para Mac OS | Leve PDF-XChange Editor predefinições para PC Windows. Com assinaturas digitais e integração com contabilidade — otimizado para máximo desempenho em cada plataforma.
 
 
 
